@@ -1,1 +1,0 @@
-# Inteleccess-Software-Engineer-Assignment_for_Placement
